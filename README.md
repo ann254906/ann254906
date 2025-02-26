@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ann254906
-- 👀 I’m interested in ...
+- 👀 I’m interested in learning more on computer programming ...
 - 🌱 I’m currently working on imroving my skills in website development and exploring more on digital world .
 - 💞️ I’m looking to collaborate on..
 - 📫 How to reach me; you can reach me through annaritandunge@gmail.com
